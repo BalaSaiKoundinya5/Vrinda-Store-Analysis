@@ -1,1 +1,1 @@
-Feel free to share your suggestions bycontacting me through my email orGitHub. Your feedback is highlywelcomed and greatly appreciated.
+Feel free to share your suggestions bycontacting me through my email or GitHub. Your feedback is highly welcomed and greatly appreciated.
